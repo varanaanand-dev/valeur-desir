@@ -44,4 +44,4 @@ Valeur & Désir tells the hidden histories of luxury's five great dynasties — 
 
 An independent project, not affiliated with or endorsed by any company named. Not investment advice. Historical details were checked against public sources; corrections are welcome.
 
-Built by Vani.
+Built by Varana Anand.
